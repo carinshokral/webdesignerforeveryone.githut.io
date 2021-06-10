@@ -1,2 +1,2 @@
-# webdesignerforeveryone.githut.io
+# carinshokral.githut.io
 website for everyone
